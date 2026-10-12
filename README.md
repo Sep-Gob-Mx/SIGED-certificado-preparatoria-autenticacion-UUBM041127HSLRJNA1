@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-UUBM041127HSLRJNA1
+UUBM041127HSLRJNA1
